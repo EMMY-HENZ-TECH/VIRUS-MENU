@@ -1,3 +1,5 @@
+<a href="https://ibb.co/L8vy61j"><img src="https://i.ibb.co/R97KPcr/IMG-20241117-WA0019.jpg" alt="IMG-20241117-WA0019" border="0"></a><br />
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=500&height=60&lines=𝐖𝐄𝐋𝐂𝐎𝐌𝐄+𝐓𝐎+VIRUS+MENU!)](https://git.io/typing-svg)
 <html lang="en">
 <head>
